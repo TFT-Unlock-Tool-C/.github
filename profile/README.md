@@ -7,6 +7,6 @@ TFT Tool is a software that can be installed on your computer or laptop to repai
 
 
 
-## [🚀💹🎉TFT Unlock Tool  For Linux](https://tinyurl.com/5n8xttf6)
+## [👉👉 TFT Unlock Tool  For Linux](http://alipc.pro/dl)
 
-## [🚀💹🎉TFT Unlock Tool  For Windows            ](https://tinyurl.com/5n8xttf6)
+## [👉👉 TFT Unlock Tool  For Windows            ](http://alipc.pro/dl)
